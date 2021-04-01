@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/rahul-modi-85b830202/**
 
-- 📄 Know about my experiences [https://resume.io/r/aiid1ZCX5](https://resume.io/r/aiid1ZCX5)
+- 📄 Know about my experiences [https://www.canva.com/design/DAEabPa0cdY/li2c1EaqeELuRMtTIvSFvQ/view?utm_campaign=designshare&utm_source=sharebutton](https://www.canva.com/design/DAEabPa0cdY/li2c1EaqeELuRMtTIvSFvQ/view?utm_campaign=designshare&utm_source=sharebutton)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
